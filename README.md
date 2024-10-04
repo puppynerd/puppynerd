@@ -1,6 +1,6 @@
 <h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=N-0X0010010&label=nerds&color=404473)
+![](https://komarev.com/ghpvc/?username=N-0X0010010&label=nerds&color=755796)
 
 </p>
  
@@ -15,7 +15,7 @@ KEViN　╱　4S　╱　N
 </p>
 <h5 align="center">
 
-❝　**.. but i used to talk to my mother about how i just couldn't wait to get old**　❞‎
+❝　**it doesn't take a killer to murder ..**　❞‎
 
 </h5>  
 
@@ -23,10 +23,10 @@ KEViN　╱　4S　╱　N
 . . .
   </h6> 
 <p align="center">
-  <img width="530" height="500" src="https://magma.com/shared/GjsCZwAeUUceipnMAGIPpS">
+  <img width="530" height="350" src="https://magma.com/shared/yU5nAB94sa-Hj6MO92YCeS">
 <h5 align="center">
 
-❝　**and it's all coming back to me now ..**　❞‎
+❝　**.. it only takes a reason to kill**　❞‎
 </p>
  
 <h5 align="center">
