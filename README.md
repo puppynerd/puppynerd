@@ -6,7 +6,7 @@
  
 <h3 align="center">
 
-KEViN　╱　4S　╱　N
+KEViN　╱　N
 
 </h3>
 
