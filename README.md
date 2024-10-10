@@ -1,12 +1,8 @@
-<h5 align="center">
 
-![](https://komarev.com/ghpvc/?username=N-0X0010010&label=nerds&color=bd4bff)
-
-</p>
  
 <h3 align="center">
 
-KEViN　╱　N
+KEViN　╱　OJ
 
 </h3>
 
@@ -15,7 +11,7 @@ KEViN　╱　N
 </p>
 <h5 align="center">
 
-❝　**it doesn't take a killer to murder ..**　❞‎
+❝　**can't tell if you wanna see me falling over and failing ..**　❞‎
 
 </h5>  
 
@@ -23,10 +19,10 @@ KEViN　╱　N
 . . .
   </h6> 
 <p align="center">
-  <img width="530" height="350" src="https://magma.com/shared/yU5nAB94sa-Hj6MO92YCeS">
+  <img width="500" height="380" src="https://magma.com/shared/upcyZwhMKSzSPwx2pt8bJS">
 <h5 align="center">
 
-❝　**.. it only takes a reason to kill**　❞‎
+❝　**.. and you can't tell what you're feeling i think i know how you feel**　❞‎
 </p>
  
 <h5 align="center">
