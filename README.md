@@ -1,6 +1,6 @@
 
   </h6> 
 <p align="center">
-  <img width="500" height="380" src="https://i.pinimg.com/enabled/564x/ed/a3/25/eda325db77326cb254f0e4ada961e07f.jpg">
+  <img width="500" height="380" src="https://cdn.discordapp.com/attachments/1190590768893677599/1294041676062658592/makesweet-38saaf.gif?ex=670ae339&is=670991b9&hm=2085a9b638f189ef79a287e53d8d3ea6c96fd2a4ddb08a0ef5502691cd8431fe&">
 <h5 align="center">
 
