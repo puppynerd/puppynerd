@@ -1,3 +1,7 @@
+don't turn away (don't give in to the pain)
 
-  <img width="500" height="380" src="https://cdn.discordapp.com/attachments/1190590768893677599/1294041676062658592/makesweet-38saaf.gif?ex=670ae339&is=670991b9&hm=2085a9b638f189ef79a287e53d8d3ea6c96fd2a4ddb08a0ef5502691cd8431fe&">
+don't try to hide (though they're screaming your name)
 
+don't close your eyes (god knows what lies behind them)
+
+don't turn out the light (never sleep, never die)
