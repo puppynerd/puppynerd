@@ -1,7 +1,3 @@
-don't turn away (don't give in to the pain)
-
-don't try to hide (though they're screaming your name)
-
-don't close your eyes (god knows what lies behind them)
-
-don't turn out the light (never sleep, never die)
+<p align="center">
+  <img width="500" height="450" src="https://magma.com/shared/3Wy80uMdZwryIlSmmJZ2Li">
+<h5 align="center">
